@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Armab Nexus
+- 👋 Hi, I’m @Abdulrahman Mosuro
 - 👀 I’m interested in web development , cyber security and in formation technology
 - 💞️ I’m looking to collaborate with unique companies
  reach me ---> https://wa.link/mb3nbb
